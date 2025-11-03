@@ -1,3 +1,2 @@
-https://we.tl/t-GAlrpSAhKn
-
-<img width="266" height="221" alt="image" src="https://github.com/user-attachments/assets/66b44eb1-2fea-4e2e-ae97-837034252ed6" />
+<img width="450" height="450" alt="qrcode_drive google com" src="https://github.com/user-attachments/assets/4349e003-a47b-446f-9d79-1585b2809b08" />
+https://reurl.cc/GGVR6y
